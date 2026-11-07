@@ -16,3 +16,8 @@ c+h is fine but i probably will not initiate conversation!!!
 
 bye now!!!
 
+<img width="1920" height="771" alt="IMG_4066" src="https://github.com/user-attachments/assets/ce9926be-15c7-4099-94ee-8d87c0076620" />
+
+banner made by mekubuzii on tumblr
+
+
