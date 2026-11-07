@@ -23,8 +23,7 @@ c+h is fine but i probably will not initiate conversation!!!
 
 bye now!!!
 
-<img width="1920" height="771" alt="IMG_4066" src="https://github.com/user-attachments/assets/ce9926be-15c7-4099-94ee-8d87c0076620" />
+<img width="736" height="414" alt="IMG_4071" src="https://github.com/user-attachments/assets/6ee1d7b7-6e3d-46c5-b12e-e5d4703bbc57" />
 
-banner made by mekubuzii on tumblr
 
 
