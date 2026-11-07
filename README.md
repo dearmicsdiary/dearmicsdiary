@@ -1,16 +1,15 @@
-## Hi there 👋
+# AVI
 
-<!--
-**dearmicsdiary/dearmicsdiary** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+hey, im avi! 
 
-Here are some ideas to get you started:
+im a minor! adults can int but always iwec. no being weird around me please!!! 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+i love object shows, they're like my favourite things ever,, mainly inanimate insanity! 
+
+i also like james marriott, south park, dandys world, and more! 
+
+i might be dry or insensitive and i apologise for that, i don't really understand emotions that well.
+
+proship, pro israel, maga, t.r.a.s.h, problematic paraphiles, groomers, qwelver supporters, justy chapman supporters, michael huang supporters please dni. 
+
+c+h is fine but i probably will not initiate conversation!!!
