@@ -1,4 +1,10 @@
+<img width="2048" height="696" alt="Untitled474_20261107110842" src="https://github.com/user-attachments/assets/b66b694a-5c01-4385-993a-0a09ac8f45b0" />
+
+
 # AVI
+
+<img width="2048" height="259" alt="IMG_4067" src="https://github.com/user-attachments/assets/052575b6-9ec3-4bed-b543-e486c806873a" />
+
 
 hey, im avi! 
 
